@@ -26,8 +26,6 @@ Weitere spannendes Themen in Michaels Videos sind das HamNet, das Funkamateuren 
 
 14:00 Uhr
 
-Michael Reichardt
-
 15:00 Uhr
 
 ## Sonntag
